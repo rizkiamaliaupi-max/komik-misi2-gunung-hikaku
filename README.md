@@ -1,0 +1,1 @@
+# komik-misi2-gunung-hikaku
